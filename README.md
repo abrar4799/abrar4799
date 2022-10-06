@@ -10,4 +10,3 @@
 
 - 📫 How to reach me **abrar.a.mohsen@gmail.com | linkedIn: Abrar Abd El-Mohsen**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1ib7DVpvTpScfHF808eqITz_Mh29-mjbV?usp=sharing](https://drive.google.com/drive/folders/1ib7DVpvTpScfHF808eqITz_Mh29-mjbV?usp=sharing)
